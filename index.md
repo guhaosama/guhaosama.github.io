@@ -1,4 +1,4 @@
-## Welcome to Dion Gu's Homepage!
+## 欢迎来到顾昊的个人主页！
 
 You can use the [editor on GitHub](https://github.com/guhaosama/guhaosama.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
