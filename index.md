@@ -3,4 +3,4 @@
 目前就职于[苏州蜗牛数字](http://www.woniu.com/)  
 手机号码：13912165660  
 微信号联系：dion8861  
-
+目前所在运营的游戏： [太极熊猫2](http://panda2.snail.com) 和 [求生英雄峡谷](http://survivalheroes.snail.com)
